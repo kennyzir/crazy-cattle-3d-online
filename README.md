@@ -79,10 +79,4 @@ Check out Crazy Cattle 3D gameplay videos on our YouTube Channel
 - **Tiktok**: [@CrazyCattle3D](https://www.tiktok.com/@crazy.cattle.3d?_t=ZT-8vZbWTK7sYk&_r=1)
 - **Discord**: Join our community
 
-## 📝 License
 
-Crazy Cattle 3D is an independently developed game. All rights reserved.
-
----
-
-Developed with ❤️ by the Crazy Cattle 3D team
