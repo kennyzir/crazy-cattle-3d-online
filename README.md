@@ -75,7 +75,7 @@ Check out Crazy Cattle 3D gameplay videos on our YouTube Channel
 
 ## 🔗 Links
 
-- **Official Website**: [crazy-cattle-3d.com](https://crazy-cattle-3d.com)
+- **PAY NOW**: [crazy-cattle-3d.com](https://crazy-cattle-3d.com)
 - **Tiktok**: [@CrazyCattle3D](https://www.tiktok.com/@crazy.cattle.3d?_t=ZT-8vZbWTK7sYk&_r=1)
 - **Discord**: Join our community
 
