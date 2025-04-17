@@ -1,12 +1,12 @@
 # Crazy Cattle 3D
 
-![Crazy Cattle 3D](https://crazy-cattle-3d.com/images/crazycattle3d.webp)
+!Crazy Cattle 3D
 
 ## The Ultimate Battle Royale Experience with Explosive Sheep
 
 Welcome to **Crazy Cattle 3D**, an exhilarating battle royale game where you control explosive sheep in a chaotic survival challenge across three distinct global environments. Master physics-based movement, outwit your opponents, and be the last sheep standing!
 
-🔗 **[Play Crazy Cattle 3D Now!](https://crazy-cattle-3d.com)**
+🔗 **[Play Crazy Cattle 3D Now!](crazycattle3donline.com/)**
 
 ## 🎮 Game Features
 
@@ -47,7 +47,7 @@ Welcome to **Crazy Cattle 3D**, an exhilarating battle royale game where you con
 
 ## 📥 Installation
 
-1. Visit [crazy-cattle-3d.com](https://crazy-cattle-3d.com)
+1. Visit [crazycattle3donline.com/](crazycattle3donline.com/)
 2. Click the "Download" button for your platform (Windows, Mac, or Linux)
 3. Run the installer and follow the on-screen instructions
 4. Launch Crazy Cattle 3D and start playing!
@@ -75,8 +75,7 @@ Check out Crazy Cattle 3D gameplay videos on our YouTube Channel
 
 ## 🔗 Links
 
-- **PAY NOW**: [crazy-cattle-3d.com](https://crazy-cattle-3d.com)
-- **Tiktok**: [@CrazyCattle3D](https://www.tiktok.com/@crazy.cattle.3d?_t=ZT-8vZbWTK7sYk&_r=1)
+- **PAY NOW**: [crazycattle3donline.com/](crazycattle3donline.com/)
 - **Discord**: Join our community
 
 
