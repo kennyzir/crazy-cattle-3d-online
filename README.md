@@ -1,6 +1,8 @@
 # Crazy Cattle 3D
 
 !Crazy Cattle 3D
+![image](https://github.com/user-attachments/assets/b2f25ae7-3ae7-4470-a741-35ca491d39c4)
+
 
 ## The Ultimate Battle Royale Experience with Explosive Sheep
 
